@@ -42,7 +42,7 @@ Contrôle de l'état du matériel retourné
 Accueil empathique et renseignement des usagers  
 Création d'une nouvelle base de données Excel et d'un archivage plus fonctionnel_  
 
-2011 - 2025 Animatrice et garde d'enfants **APF, EEVA, Les 1000 et UN et salariat CESU**  
+2011 - 2015 Animatrice et garde d'enfants **APF, EEVA, Les 1000 et UN et salariat CESU**  
 _Apport de sécurité et de bien-être à des personnes vulnérables au cours de tâches quotidiennes ainsi que de leurs déplacements  
 Collaboration réussie dans des équipes comptant entre 4 et 20 personnes_  
 
